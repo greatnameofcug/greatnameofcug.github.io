@@ -1,1 +1,1 @@
-# greatname.github.io
+# greatnameofcug.github.io
